@@ -1,0 +1,2 @@
+# Jaufa
+What Is Jaufa? Is a Discord Bot We are working on it this bot, this bot Helped To more easily kicked the people warn the peoples or banned the peoples you can warn to peoples who didn't follow the rules. We are Trying to make it simple as much as possible we hope , The peoples like my "Jaufa" Bot We are working on it . And This Bot is not released Yet So have patient. We Also added the Sounds mods like listen the songs Or more Features.
